@@ -1,0 +1,2 @@
+# -REALLI-BASIC-GENERATOE-BOT-CUSTOM
+pls no steal
